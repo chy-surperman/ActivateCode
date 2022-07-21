@@ -10,7 +10,7 @@ idea激活码,全家桶激活码,pycharm激活码,WebStorm激活码,PhpStorm激�
 
 欢迎关注公众号： 【IT路上人】
 如果激活码有问题可以给我留言！
-
+联系电话：18774085830
 ### 关注公众号，获取免费永久补丁！
 
 ![avatar](./img/qrcode.jpg)
